@@ -1,4 +1,0 @@
-sdfghjkl;tytyt
-uiopqwer			
-zxcvm,./
-
